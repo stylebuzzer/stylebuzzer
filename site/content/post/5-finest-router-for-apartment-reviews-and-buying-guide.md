@@ -9,10 +9,9 @@ Since the number of clever devices used in homes rises, it will become vital tha
 
 Deciding which one to purchase can be a tough task if you don't do proper research. Even though there are many routers present on the market, not all of them are great. Additionally, the kind of router you need to get depends on specific elements. These variables will give you only a handful of routers to pick from.
 
-To simplify the job of locating a good router for you, we have curated a list of the 5 best router for apartments. You will get a thorough review of each one of these products. Besides that, there's a brief description of the factors mentioned above from the buying guide, which will help you find the perfect router for yourself.
+To simplify the job of locating a good router for you, we have curated a list of the 5 [best router for apartments](https://stylebuzzer.com/best-router-for-apartment-review/). You will get a thorough review of each one of these products. Besides that, there's a brief description of the factors mentioned above from the buying guide, which will help you find the perfect router for yourself.
 
 ## TP-Link AC1750 Smart WiFi Router (Archer A7) -- Finest Option
-
 
 TP-Link is a famous brand when it comes to routers. It's a vast selection of good routers, and Archer A7 is one of them. This router is designed for houses and apartments. Hence, it is going to fulfil the needs of wifi at your home.
 
